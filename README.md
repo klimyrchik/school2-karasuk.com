@@ -1,0 +1,1 @@
+# school2-karasuk.com
